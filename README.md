@@ -1,0 +1,1 @@
+# Mapa_tmean_arequipa
